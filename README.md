@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm Rovic Sumilang
+# 👋 Hey everyone, I'm Rovic Sumilang
 
 
 💡 Where creativity meets technology.
