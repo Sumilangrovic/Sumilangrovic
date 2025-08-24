@@ -1,7 +1,7 @@
 # 👋 Hey there, I'm Rovic Sumilang
 
 
-✨ _Turning ideas into code, and code into solutions._ ✨  
+💡 Where creativity meets technology.
 
 ---
 
