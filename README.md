@@ -1,6 +1,5 @@
 # 👋 Hey there, I'm Rovic Sumilang
-21 years old
-BSIT Student
+
 
 ✨ _Turning ideas into code, and code into solutions._ ✨  
 
