@@ -14,7 +14,7 @@
 
 ## 🌐 Connect With Me   
 - 📧 Email: langsumivicro@gmail.com 
-⭐️ From [Rovic](https://github.com/Sumilangrovic)  
+⭐️  Github:(https://github.com/Sumilangrovic)  
 ---
 
 
